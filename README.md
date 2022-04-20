@@ -2,7 +2,7 @@
 
 **My Focus**
 
-Over 10 years of experience in tech support in small to medium companies. Driven to learn new technologies; I take pride in exceeding expectations with customers and team members; I'm in search of a company, I can contribute to and successfully grow my career in the long term.
+Full Stack software developer with over 10 years of experience in tech support in small to medium companies. Driven to learn new technologies; I take pride in exceeding expectations with customers and team members; I'm in search of a company, I can contribute to and successfully grow my career in the long term.
 
 **My Background**
 
